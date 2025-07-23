@@ -19,7 +19,7 @@ As a Break Through Tech AI Fellow at **Cornell Tech**, I’m also developing ski
 
 ### 🔗 Connect with Me
 
-- 📫 Email: cynzyb@yahoo.com  
+- 📫 Email: cynthiakorankye62@gmail.com  
 - 💼 LinkedIn:www.linkedin.com/in/cynthia-korankye-88249295   
 
 
